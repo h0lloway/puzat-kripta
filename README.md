@@ -1,1 +1,1 @@
-# puzat-kripta
+# puzat-kpirta
